@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rarebear13
-- 👀 I’m interested in playing video games, making video games, watching anime, reading manga.
+- 👀 I’m interested in playing video games, making video games, making videos, watching anime, reading manga.
 - 🌱 I’m currently learning mechatronics and GML.
 - ▶  https://www.youtube.com/c/rarebearx
 
